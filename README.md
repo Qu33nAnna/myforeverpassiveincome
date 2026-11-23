@@ -1,0 +1,2 @@
+# myforeverpassiveincome
+Passive income
